@@ -1,10 +1,5 @@
 ### Hi there 👋
 
-
-**AdyStudios/AdyStudios** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 - 🔭 I’m currently not working on anything useful...
 - 🌱 I’m currently not learning, becasue I'm lazy...
 - 👯 I’m looking to collaborate with anyone, I guess,
