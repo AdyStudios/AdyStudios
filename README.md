@@ -5,6 +5,4 @@
 - 🎬 I edit and make videos on my [YT](https://www.youtube.com/@adytm)
 - 🎮 I play ```Counter-Strike 2 | Minecraft | DIRT RALLY 2.0 | BeamNG.drive | Far Cry```
 - 👯 I’m looking to collaborate with anyone, I guess,
-- 🤔 I’m looking for help with cool stuff...
-- 💬 Don't ask me about Minecraft...
 - 📫 Talk with me on Discord: .adyendre
